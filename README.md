@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Carolieeeeeeeena
 - 👀 I'm a graduate student in English trying something new.
-- 🌱 I’m currently learning how to code lol
+- 🌱 I’m currently learning how to do...everything
 - 💞️ I’m not looking for collaborations right now, just encouragement haha
 
 <!---
